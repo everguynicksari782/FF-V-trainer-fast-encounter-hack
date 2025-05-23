@@ -1,0 +1,1 @@
+# FF-V-trainer-fast-encounter-hack
